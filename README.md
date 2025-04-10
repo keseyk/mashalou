@@ -20,10 +20,10 @@ Each session is carefully curated and tailored to reflect your unique style and 
 
 Sessions are already filling up quickly for peak dates between April and October 2025. Early booking is strongly encouraged to secure your preferred time.
 
-👉 Book now or learn more at: www.mashalou.com
-<a href="https://www.mashalou.com/proposal-photographer-nyc/">Proposal photographer</a>
-<a href="https://www.mashalou.com/engagement-photographer-nyc/">Engagement photographer</a>
-<a href="https://www.mashalou.com/couples-photographer-nyc/">Couples photographer</a>
+👉 Book now or learn more at: www.mashalou.com</br>
+<a href="https://www.mashalou.com/proposal-photographer-nyc/">Proposal photographer</a></br>
+<a href="https://www.mashalou.com/engagement-photographer-nyc/">Engagement photographer</a></br>
+<a href="https://www.mashalou.com/couples-photographer-nyc/">Couples photographer</a></br>
 <a href="https://www.mashalou.com/elopement-photographer-nyc/">Elopement photographer</a>
 
 About Masha Lou Photography
